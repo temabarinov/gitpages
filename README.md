@@ -6,4 +6,4 @@ __Vladimir__
 
 gg
 
-![крутой](/Users/artembarinov61icloud.com/Documents/2e655fb4c10a446497815e8651549266.jpg)
+![крутой](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSSxrNQqavg6eVvkUi3cIelDbfPxpMQbLe1iA&s)
