@@ -1,5 +1,5 @@
 # Artem Barinov
 
-*26.09.2007*
+**26.09.2007**
 
-_Vladimir_
+__Vladimir__
